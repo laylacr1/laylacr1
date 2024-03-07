@@ -10,4 +10,4 @@
 
 😄 Pronouns: She/Her
 
-⚡ Fun fact: Beyond the digital landscape, I also interest working out. Let's swap stories and discover common ground beyond the lines of code!
+⚡ Fun fact: Beyond the digital landscape, I also interest working out. Let's swap stories and discover common ground beyond the lines of code.
